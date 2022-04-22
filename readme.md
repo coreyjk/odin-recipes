@@ -1,0 +1,1 @@
+I have learned some of the basics of HTML. How to format, bold, italics. How to link sites and images.
